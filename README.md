@@ -12,3 +12,19 @@ n fg
  n f
  gn
  fg
+DFBDFBDFB
+DB
+DFB
+DFBD
+FB
+DFB
+DFB
+DFB
+DFB
+DB
+DFB
+DFB
+DB
+DB
+
+DF
