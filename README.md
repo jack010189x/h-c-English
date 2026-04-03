@@ -6,25 +6,12 @@ học bao nhiêu từ vựng?
 tyjtyj tyjtyjtyj tỵ ty jty jty
 tgyjtyj tỵ yujyuj yuj
 dfbfgbfgnb gfn ghn ghn
-f gnfg
-n fg
- nfg
- n f
- gn
- fg
-DFBDFBDFB
-DB
-DFB
-DFBD
-FB
-DFB
-DFB
-DFB
-DFB
-DB
-DFB
-DFB
-DB
-DB
-
-DF
+fgbfgb fg bfbfg
+fgb
+fgb
+fgb 
+fg
+bfgb
+gfb fgb
+ fgbf
+ gbfgb
